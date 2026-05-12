@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg custom Scripts is the best break a brainrot egg Script, featuring auto-farm and one-hit kill. Safe and powerful for all your
 
 
 
